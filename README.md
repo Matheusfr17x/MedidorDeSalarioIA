@@ -1,0 +1,3 @@
+# MedidorDeSalarioIA
+# MedidorDeSalarioIA
+# MedidorDeSalarioIA
